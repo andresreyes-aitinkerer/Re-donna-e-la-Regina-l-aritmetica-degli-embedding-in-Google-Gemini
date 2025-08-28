@@ -1,0 +1,1 @@
+# Re-donna-e-la-Regina-l-aritmetica-degli-embedding-in-Google-Gemini
